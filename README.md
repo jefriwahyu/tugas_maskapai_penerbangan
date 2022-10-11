@@ -127,9 +127,9 @@ _JWP_
 
 ## Kontak
 
-![twitter](http://i.imgur.com/wWzX9uB.png) : ![]() _@jefri_wahyu_
-![facebook](http://i.imgur.com/fep1WsG.png) : ![]() _Jefri Wahyu_
-![gmail](http://i.imgur.com/VlgBKQ9.png) : ![]() _jefrywahyu63@gmail.com_
-![github](http://i.imgur.com/9I6NRUm.png) : ![]()  _jefrywahyu_
+![twitter](http://i.imgur.com/wWzX9uB.png) : ![]() _@jef_art_
+![facebook](http://i.imgur.com/fep1WsG.png) : ![]() _jeart_
+![gmail](http://i.imgur.com/VlgBKQ9.png) : ![]() _jefryart@mail.com_
+![github](http://i.imgur.com/9I6NRUm.png) : ![]()  _jefryart_
 
 **Termikasih Sudah Membaca Saya**
